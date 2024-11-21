@@ -1,0 +1,1 @@
+# Nurbakyt_rezume
