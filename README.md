@@ -1,8 +1,8 @@
-# Nurbakyt_rezume
+# Nursaule_rezume
 # Атыңыз Тегіңіз:Нұрбақыт Ержанқызы
 **Мамандық:** it medicine  
-**Email:** sagyngalieva2004@gmail.com
-**Телефон:** +77475286850 
+**Email:** nura2004@gmail.com
+**Телефон:** +77470709405
 **LinkedIn:** [Профиль сілтемесі](https://linkedin.com)  
 **GitHub:** [GitHub сілтемесі](https://github.com/username)
 
